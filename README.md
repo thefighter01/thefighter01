@@ -1,5 +1,5 @@
 ### Hi, I'm Mahmoud👋
-###### I'm not here to take part, I'm here to take over. Mark my words
+###### i am willing to lose my mind in the process , i will continue to do so 
 <!--
 **thefighter01/thefighter01** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
